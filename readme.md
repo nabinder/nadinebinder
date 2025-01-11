@@ -68,9 +68,8 @@ I also mentor doctoral researchers and help guide their career development throu
 
 Feel free to reach out for collaborations, speaking engagements, or just to chat!
 
-- **Email:** sully.benovitz@example.com  
-- **LinkedIn:** [linkedin.com/in/sullybenovitz](https://linkedin.com/in/sullybenovitz)  
-- **GitHub:** [github.com/sullybenovitz](https://github.com/sullybenovitz)  
+- **Email:** nadine.binder@uniklinik-freiburg.de  
+- **LinkedIn:** [linkedin.com]([https://linkedin.com/in/sullybenovitz](https://www.linkedin.com/in/nadine-binder-1689a43/))  
 
 ---
 
